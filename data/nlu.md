@@ -1,0 +1,645 @@
+## intent:refund_status
+- still waiting for [refund](refund) Pnr -[ZQYE2E](PNR) @IndiGo6E
+- i need you to process a full [refund](refund)! @IndiGo6E 
+- dear sir please [repay](refund) my tickets money @IndiGo6E
+- @IndiGo6E I need my full [refund](refund). My PNR is [PJHGDF](PNR)
+- Hi @IndiGo6E Kindly offer me the complete [refund](refund) 
+- @IndiGo6E Kindly give me the date of [refund](refund)
+- Please update the status of amount [refund](refund) PNR [IE6IFI](PNR) @IndiGo6E
+- PNR:[JGPWRS](PNR) please [refund](refund) my money @IndiGo6E
+- i am waiting for my [refund](refund), my PNR number is [ANBG5D](PNR)
+- @IndiGo6E I am yet to get [refund](refund). PNR [YPF59H](PNR)
+- @IndiGo6E kindly process for [refund](refund) of the pnr [CLZZUT](PNR) 
+- @IndiGo6E  I am still waiting for my [refund](refund) since 25th of March 2020
+- @IndiGo6E when i will get my [money back](refund).
+- Dear @IndiGo6E When will I get the [money back](refund) for the PNR [AIG1HJ](PNR)?
+- @IndiGo6E   @YatraOfficial  why my [refund](refund) is still not send to my account?
+- @IndiGo6E We opted for a [refund](refund) and the entire process took around a week back. She is still waiting on that [refund](refund). 
+- @IndiGo6E [FLIGHT](nopnr) booked on their site, cancelled by airlines on 31July 2 weeks later, still no [refund](refund)
+- @IndiGo6E [FLIGHT](nopnr) booked on their site, cancelled by airlines on 31July 2 weeks later, still no [refund](refund)
+- @IndiGo6E Kindly [refund](refund) my money back as I am not a frequent flyer.  
+- @IndiGo6E please look into the matter because I have booked my tickets through you and I need my full [refund](refund).
+- @IndiGo6E It would b helpful if u can provide any proof of [refund](refund) being initiated?
+- @IndiGo6E I booked an indigo [FLIGHT](nopnr) from pune to lucknow which was later canceled due to covid 19 lockdown but still I haven't got my [refund](refund) kindly look into the matter 
+- @IndiGo6E my brother is not travelling anywhere for at least 2 years due to medical condition. Kindly process the [refund](refund) at the earliest and I shall cooperate. I do not want to escalate this any further but I WANT A [REFUND](refund)
+- @IndiGo6E 5days completed and no reply from indigo airlines  and it said in the message reply in 48hour have no reply and amount not [refunded](refund) my balance in my bank account
+- No update till now.... U ppl deduct the amount with in seconds and dnt give [refunds](refund) in time.... @IndiGo6E
+- @IndiGo6E I haven't received my [refund](refund) towards cancellation of [FLIGHT](nopnr)
+- Just give me my [refund](refund) immediately and send the [refund](refund) details. @IndiGo6E
+- @IndiGo6E thanks for cancelling my flight now [PLEASE](nopnr) give me the [refund](refund) of both of the flights 
+- @IndiGo6E Booking cancelled due to fare expiration on 5th Aug, amount deducted but yet to receive [refund](refund) amount. 
+- [PLEASE](nopnr) [UPDATE](nopnr) chasing and struggling from last 4 months. If airlines or agency has cancelled my booking why I should bear the expense. [Refund](refund) my full amount. @IndiGo6E
+- @IndiGo6E more than one month since my round trip was cancelled by your airline. Continuous calls but still no [refund](refund). bad services 
+- @IndiGo6E I havent gotten [refund](refund) of Rs1346. I had a flight on 9th of August. Its been days. Kindly [refund](refund) the amount ASAP. 
+- My flight was cancelled in March. I am keep on following for [refunds](refund). but still no [refunds](refund) received. 
+- are u guys running a fraud airline? have written multiple times to [refund](refund) my fight amount, submitted multiple requests via app and web. no response. @IndiGo6E
+- @IndiGo6E where is my [refund](refund) amount of Rs. 5,919/-?  Where is the credit shell? [PLEASE](nopnr) [refund](refund) my money.\- After multiple emails and request raised in your support site my issue is not getting resolved 
+- @IndiGo6E why the [refund](refund) money is less compared what indigo airlines has charged(5527).
+- i am waiting for my [refund](refund), my PNR number:[ANBG5D](PNR)
+- @IndiGo6E This is regarding my trip ID: 690326739133574582. I am yet to get [refund](refund). PNR [YPF59H](PNR)
+- Please confirm my [refund](refund) status of Pnr-[ZQYE2E](PNR) for date 5th mar 2020 as it was cancelled due to lockdown. But we are still awaiting for a [refund](refund).
+- PNR: [PLQN7Q](PNR) The full [refund](refund) amount of the flight ticket from JLR-BOM, cleartrip Id: 200301303688 is not received. 
+- @IndiGo6E I havent received my [refund](refund) for my flight yet. My PNR is [PJHGDF](PNR)
+- My flight (PNR-[NQ8BFE](PNR)), 6E 6324 from CCU-DEL-STV on 18Aug2020 was cancelled by the airlines due to travel restrictions but i haven't received [refund](refund). 
+- Customer care have told that they will [refund](refund) the money within a week's time but no response yet.
+- Can you provide me an update on [refund](refund) status against the cancellation of PNR [OEQMKY](PNR) ? It's been so long but I haven't received the [refund](refund).
+- @IndiGo6E Please send the [refund](refund) details  on my personal email akazi1@gmail.com
+- @IndiGo6E PNR is [OHC8GC](PNR) was cancelled by you guys at last moment but the [refund](refund) amount is Rs300 less than actual amount paid? why so? What kind of convinience was this? How can you charge convinience fee?
+- Flight cancelled at Airlines side on 18th July: 4 weeks later I still haven't received [refund](refund). @IndiGo6E flight booked on their site, cancelled by airlines on 31July. 2 weeks later, still no [refund](refund)
+- @IndiGo6E @makemytrip I recently had booked a flight from chennai to Kolkata, the PNR is:[JGPWRS](PNR). However due to embargo in Kolkata, flight got cancelled. I initiated [refund](refund) but still it hasn't reached my bank account after more than 7days. Please look into this urgently.
+- My [refund](refund) is pending from ages no response from your airlines @IndiGo6E
+- @makemytripcare @IndiGo6E As usual I haven't received my [refund](refund) when I was promised a date between 7th August to 10th August
+- @IndiGo6E , For PNR [IE6IFI](PNR), request for 100% [refund](refund) as I don't want to travel in this very serious situation Do the needful please.
+- @IndiGo6E my parents had a return flight from Colombo to Chennaion 13th Mar 2020. The flight was cancelled few hours before departure. Guys at the airport counter assured of full [refund](refund). We are still waiting. Your customer care says they cant do anything.
+- @IndiGo6E Just now got a msg from Indigo that flight is cancelled. I click the [refund](refund) option. But still now I have not get the [refund](refund) money
+- @IndiGo6E Enough is enough! 5 months and you people have harassed me at another level. If I don't get my full [refund](refund) now I am filing a case against you. I don't need you damn [CREDIT](nopnr) shells. They make no sense to me.
+- @IndiGo6E kindly process for [refund](refund) of the pnr [CLZZUT](PNR) there is not plan to travel.
+- @IndiGo6E I had a group booking under pnr [KF8GXI](PNR) but the trip was cancelled due to lockdown now I request you to please [refund](refund) the amount as there is no future travel due to this pandemic.
+- @IndiGo6E I am still waiting for the [refund](refund) since 25th of March 2020
+- @IndiGo6E I have booked ticket in the month of February and the my flight got cancelled due to pandemic and I haven't got any [refund](refund) yet. please tell me when I will get my [refund](refund) back
+- @IndiGo6E I want a [refund](refund) right now. I will not give you much time. Otherwise I will go ahead. So I request to you pl. Asst. Me . Otherwise I will make a consumer case. Don't disturb me do what I want. We do not want advice that you have to travel within 1 year. That's all.
+- @goibibo Dear team, On 18 June 2020, I have booked the flight from Nagpur to Kolkata , but it got cancelled from Indigo. It has been more than a month, I have not received the complete [refund](refund) amount. Details- Booking ID - N6EDDTNYL PNR - [DDTNYL](PNR) @IndiGo6E
+- I booked my ticket from @Cleartrip because of COVID 19 my ticket was canceled. it'll be possible to get full [refund](refund) for the @IndiGo6E flights cancellation.
+- 13 days passed after raising request for [refund](refund). Still not got my [refund](refund). Should I wait  till next year. @Flipkart @IndiGo6E
+- @IndiGo6E I booked the flight on 19.4.20 for the traveling on 4.5.20. But flight is cancelled due to covid-19 . I want to full  [refund](refund) in cash. My pnr [ENJ2KK](PNR).
+- @IndiGo6E Pnr - KGVNWC we cannot travel due to pandemic pls chck my booking and provide full [refund](refund). as its not our fault in this corona disaster.. required full [refund](refund)
+- @EaseMyTrip where is my [refund](refund) for booking Id# EMT69647212 PNR # [RME6SQ](PNR) @IndiGo6E .
+- @IndiGo6E @goibibo the flight was cancelled from ur side then why don't U do the needful and process the [refund](refund). 1.PNR [DGF6RC](PNR) 2.PNR [NE35YL](PNR) Pls [refund](refund) as soon as possible.
+- @IndiGo6E I have the same issue with PNR:-[AE555V](PNR), booked for 6ppl, they r just giving me 3k of the [refund](refund). Wherein I requested for the full [refund](refund) I expect full [refund](refund)
+- @makemytripcare @makemytripcare u cant deny its a fraud from ur side and from airline side. [Refund](refund) the amount @IndiGo6E
+- @makemytripcare Dear @makemytrip @makemytripcare as per govt advisory it is been declared by govt to avoid unnecessary travel and special for senior citizens. Kindly [refund](refund) the full amount @DeepKalraMMT @IndiGo6E u r taking so much time to reply and my resolution is this ur service??
+- @IndiGo6E Indigo one kind request. Kindly make arrangements to [refund](refund) the balance amount. of 3000 as the cancellation of PNR [LN74MN](PNR) which had cancelled within 24 hours of booking time. Out of Rs.9580,  Rs.6330 only credited to my bank account
+- @IndiGo6E Team , kindly update the [refund](refund) status of my PNR [UGJPFF](PNR)
+- @IndiGo6E  @makemytripcare Hi There , I am awaiting for my [refund](refund) for my cancelled flight for non operational reason. Since 14 days there isn't any support from any of you. Extremely Disappointed
+- @makemytripcare @makemytripcare @makemytrip its ur fake policy to do fraud. But as per govt policy in this pandamic situation it is suggested to avoid travelling specialy for senior citizens. And all passengers are senior citizens. [Refund](refund) the full amount. @IndiGo6E reply awaiting
+- @IndiGo6E please intimate the [refund](refund) status for PNR:-[FFG1PV](PNR)
+- @IndiGo6E Kindly initiate the [refund](refund) amount of Rs. 3000 in my original payment mode or in my [CREDIT](nopnr) shell.
+- @IndiGo6E  promised me for full [refund](refund) that was 4452 but they provided me 4152. Cheated by @IndiGo6E .
+- Hey @Cleartrip @IndiGo6E Please check my [refund](refund) status on urgent basis PNR - 1.[T6GP6P](PNR) 2.[FYLCGQ](PNR)
+- Hi @IndiGo6E it's been more than a fortnight since you promised to [refund](refund) the fare on account of cancellation of my flight from Delhi to Kolkata. The funds are yet to reflect in my account. Any update?
+- Hi @IndiGo6E, how to get [refunds](refund) for my three cancelled flights? It's been over a month since I got a text that said it will be in my account in 7 days.
+- @IndiGo6E Losing trust in Indigo. Please [refund](refund) my money for the group bookings done during lockdown. PNR Numbers -[YN67NA](PNR) ,[CPPZQR](PNR) ,[FLTD4N](PNR)
+- @IndiGo6E Hi, I booked my flight from jammu to hyderabad on 27 april 2020, My PNR -[FFQCJS](PNR) INDIGO 6E-653 I would like to get the [refund](refund) back, any of your team and customer care is not responding What type of service is dis
+- @IndiGo6E How much days to get [refund](refund)  of cancelled flight. Pnr [DJT29G](PNR)
+- @goibibo Hi @goibibo @IndiGo6E  what is the status of full [refund](refund) for this booking? What are you waiting for?
+- @IndiGo6E Please [refund](refund) me, my amount back to my account for the group bookings made during lockdown. The cancelled tickets should be [refunded](refund) back.
+- @IndiGo6E PNR [KWMEUX](PNR) Delhi to Hyderabad 7th April 2020 [refund](refund) not received
+- @Cleartrip @amazonIN @IndiGo6E On 25 March I booked the ticket.  My money has not been [refunded](refund) yet.  I am tired of taking the phone off. Please [refund](refund) me how amount man, I have become very frustrated with service. Why are you not responding
+- @IndiGo6E Please [refund](refund) full amount i have booked the tkt from your website 6E
+- I cancel my brother's flight which is 7 Aug but it's still on pending plz complite the cancellation process and [refund](refund) my money My pnr number- [VPEY9H](PNR) @IndiGo6E 
+- Flight was booked for 25 th June'2020 later on it was cancelled by @IndiGo6E  but amount is not [refunded](refund) yet how long does the process of [refund](refund) completed @IndiGo6E
+- @IndiGo6E PNR: [GQCM8B](PNR) where is my [refund](refund)? Its over 7 days now
+- @makemytrip @makemytripcare @IndiGo6E I booked flight ticket from makemytrip, flight was cancelled. I cancelled my ticket from indigo website. It was showing I will get full [refund](refund) . I got an email from indigo for the same. It has been 10 days now I haven't received my [refund](refund).
+- I cancel my brother's flight which is 7 Aug but it's still on pending plz complite the cancellation process and [refund](refund) my money My pnr number- [VPEY9H](PNR) @IndiGo6E
+- Flight was booked for 25 th June'2020 later on it was cancelled by @IndiGo6E  but amount is not [refunded](refund) yet how long does the process of [refund](refund) completed @IndiGo6E
+- @IndiGo6E I was supposed to get [refund](refund) of 1850 INR against my flight booking from Delhi to Ranchi PNR - [QCPRTR](PNR) which was rescheduled to 29-06-2020, but till dated same is awaited. Please [CREDIT](nopnr) same asap. 
+- @IndiGo6E Hi I have booked a ticket on March 10th 2020, in the name of Supriya Chatterjee she was suppose to travel from Kolkata to Mumbai on 12th May 2020. The pnr no.[KKSWPT](PNR) please let me know when can I except the [refund](refund) of the amount.
+- Please provide [refund](refund) for the entire amount without cancellation charges. Why am I being penalised for Covid ? Other individual tickets have been given whole [refund](refund). Why are not group tickets being [refunded](refund)? Awaiting for a timely reply. @IndiGo6E
+- I have booked flight ticket from indigo Airlines through their official app for Kuwait to Mumbai flight ticket on 02nd Aug 2020 for 15th August 2020 but flight got cancelled.I gave request for [refund](refund) via app and have not received the same yet.@IndiGo6E
+- @IndiGo6E @DGCAIndia @MoCA_GoI I had booked a flight for Dehradun to Mumbai, Mar 25, 2020, 6E 981. PNR no [NCYPKB](PNR). I cancelled the flight as all the flights were cancelled due to lockdown. I haven't received any [refund](refund) for the same.
+- @IndiGo6E please clear [refund](refund) statues of opnr-[CLLGUA](PNR).
+- @IndiGo6E your app sucks! I need my [refund](refund) to be initiated!!
+- Hi, @IndiGo6E pls check the [refund](refund) status of PNR-[CPKHGE](PNR), which got cancelled automatically on 10th July, due to flight cancellation. Routes are BBI-IXG via HYD. As I yet to receive the [refund](refund).!!
+- Dear @IndiGo6E When will I get the [refund](refund) for the PNR [AIG1HJ](PNR)?
+- @IndiGo6E you people have created a [credit shell](shell) and are now not willing to [refund](refund). All this when I requested for a [refund](refund) via your website. This is ridiculous.
+- @IndiGo6E @IndiGo6E this flight is a cheater and know how to digest people money. Even after getting government guidelines on ticket [refund](refund) during covid-19, they are providing it in [credit shell](shell). 
+- @HardeepSPuri Yes sir I booked the flight and then they canceled the flight. And now put all the money in [credit shell](shell) and not [refunding](refund)
+- @IndiGo6E You converted my flight ticket for travel during the lockdown [PERIOD](nopnr) into a [credit shell](shell) without my consent and inspite of me choosing the [refund](refund) option and now your team is telling me that they won't [refund](refund) my money. This is unacceptable. @DGCAIndia please take action.
+- @IndiGo6E I have already mentioned to you guys that i wont be traveling for a year. I had booked tickets to goa from chennai for the date 26 march. The flight got canceled and you have issued a [credit shell](shell) which i wont use. Please [refund](refund) my money.
+- @IndiGo6E I need the complete [refund](refund) for pnr -[DLW8RN](PNR) (Rs 12,924) and pnr -[IMJNHN](PNR) (Rs 6,000). Why is [credit shell](shell) created with these amounts and only partial [refund](refund) done. I don't plan to travel anytime in near future. 
+- I have two [credit shell](shell) number due to covid 19. But i could not used in this [PERIOD](nopnr). I already taken ticket from another airlines so please [refund](refund) my money to direct my account.
+- I booked flight ticket of @AirAsia and @IndiGo6E due to lockdown it was cancelled by airline and they issue [credit shell](shell) of 1 year validity for same passenger while @DGCAIndia and @GovtOfIndia_  said that airline should provide full [refund](refund) in original payment mode.
+- @IndiGo6E My parents are at high risk and I cant make them travel to utilize this [credit shell](shell)... Request you to help me with full cash [refund](refund). Not an ethical way to utilize customer's money for generating revenues for the company. [Credit shell](shell) is waste.
+- I had booked a flight on 28th Jan, 2020 for my parents who were willing to travel on 17th May but due to lockdown, the flights got cancelled. @IndiGo6E has issued a [refund](refund) ([Credit Shell](shell)) but since my parents cant travel, I want full cash [refund](refund)
+- @IndiGo6E I don't want [credit shell](shell). I was informed about [refund](refund) of airfare. I will not settle for anything else
+- @IndiGo6E I want [refund](refund) of [credit shell](shell)
+- @IndiGo6E I want to convert my [credit shell](shell) into [refund](refund) as I have no such plan of travelling in future. And expiry date of [credit shell](shell) is till April 2021. I request you to kindly look into this matter.
+- @IndiGo6E Dear first you [refund](refund) my balance amount which you kept as [credit shell](shell)
+- @IndiGo6E Sir, if we are not traveling within a year. What to do with the [credit shell](shell). Why can't you cancel the ticket and [refund](refund) it
+- @IndiGo6E I dont want [credit shell](shell), i want full [refund](refund). There is no future plan and forcing for [credit shell](shell) is wrong. My full family was travelling and need [refund](refund) for all PNRs.
+- @IndiGo6E I want [refund](refund) instead of '[credit shell](shell)' for my ticket from India to London which was cancelled due to COVID back in April this year. 
+- @IndiGo6E i am not in a position to use the [credit shell](shell) till April 2021(as promised by Indigo)
+- @IndiGo6E The ticket for which I raised a [refund](refund) request meets this criteria. Inspite of that you people have created a [credit shell](shell) and are now not willing to [refund](refund).
+- @IndiGo6E You converted my flight ticket for travel during the lockdown [PERIOD](nopnr) into a [credit shell](shell) without my consent and inspite of me choosing the [refund](refund) option and now your team is telling me that they won't [refund](refund) my money. This is unacceptable.
+- @IndiGo6E can u plz deposit my [credit shell](shell) amount in my account. My credit shell PNR-[DLYGHQ](PNR).
+- @IndiGo6E Enough is enough! 5 months and you people have harassed me at another level. If I don't get my full [refund](refund) now I am filing a case against you. I don't need you damn [credit shells](shell).
+- @IndiGo6E I want full [refund](refund) not as [credit shell](shell). pl. [Refund](refund) my amount urgent. Otherwise I will make a consumer case.
+- I have two [credit shell](shell) number due to covid 19. But i could not used in this period. I already taken ticket from another airlines so please [refund](refund) my money to direct my account @IndiGo6E 
+- @IndiGo6E  i have group booking which was cancelled due to covid can i get my money back..? I dont want [credit shell](shell) .!!
+- @IndiGo6E please cooperate with us in bad times. I am requesting you for [refund](refund) but you guys are forcing for [credit shell](shell) and even not replying on chat as provided by you.
+- @IndiGo6E Dear, [refund](refund) the [credit shell](shell) value for DL96QD to my account on immediate basis. 
+- @IndiGo6E I dont want [credit shell](shell), i want full [refund](refund). There is no future plan and forcing for [credit shell](shell) is wrong. My full family was travelling and need [refund](refund) for all PNRs.
+- I am not interested to Travel anywhere In covid 19 !!! Now they kept our amount as on [credit shell](shell) i Dunt need plz lets talk abt total [refund](refund) @IndiGo6E 
+- @PMOIndia @MoCA_GoI Is this justified that my flight was cancelled by airline and amount was kept in [credit shell](shell). I don't want to travell in future atleast one year. Why indigo is not [refunding](refund) my money? Please help @IndiGo6E
+- @IndiGo6E i had booked 13 tickets for my family on 06th may which got cancelled and the amount has gone into a [credit shell](shell), But due to no furthur plan of travel in next one year of the same passengers, I would like to request a [refund](refund) of the amount.
+- @IndiGo6E kindly [initiate](refund) the amount for my pnr [ABD5RT](PNR).
+- @makemytripcare @IndiGo6E I am talking on behalf of my sister name (Nripa Dhiman). DUE to COVID19 country lockdown tickets were cancelled from the company end.I request you to please [initiate the amount](refund) ASAP.
+- I  did not Use [credit Shell](shell) yet And Cleartrip doesn't accept my [credit Shell](shell) ([ZINFWP](PNR)) What can I do for this! I need my full [refund](refund) or full [credit Shell](shell) I'll also mail You at customer.relations@goindigo.com @IndiGo6E @IndiGo6E @IndiGo6E Please Help me as soon as possible.
+- @IndiGo6E why for some customers you have given full [refund](refund) while for others she'll amount ..? Ahmedabad to Bagdogra Pnr [YMKI2N](PNR) [QGGL5P](PNR)
+- @IndiGo6E HI TEAM , [FLIGHT](nopnr) WAS [CANCEL](nopnr) , [PLEASE](nopnr) [PROCESS](nopnr) FULL [REFUND](refund) for [VIZGPC](PNR)
+
+## intent:thank_you
+- [Thank you](thanks) @IndiGo6E for [refunding](refund) the amount.
+- @IndiGo6E [thank you](thanks) for [refunding](refund) back the amount to me. 
+- @indigo6e As confirmed earlier, the [refund](refund) has already been processed on 31st July to your Paypal account. [Thanks!](thanks)
+- @IndiGo6E [thank you very much](thanks) for making my full [refund](refund) back for the cancelled flight. [Thank you so much.](thanks)
+- [Thanks](thanks) @IndiGo6E they [refunded](refund) entire amount
+- @IndiGo6E  [thanks](thanks) for your [refund](refund) for our trip of may 2020
+- [Thank you](thanks) @IndiGo6E and @amazonpay for quick service of my [refund](refund).
+- @IndiGo6E [Thank you very much](thanks) it's highly appreciated
+- [Thank you](thanks) @airindiain and @IndiGo6E
+- @IndiGo6E [Thanks](thanks) @IndiGo6E for the immediate action and [refunding](refund) the amount. 
+- @IndiGo6E [Thank u](thanks) for the [refund](refund). 
+- @IndiGo6E Got the money yesterday!! [Thanks](thanks) @IndiGo6E
+- @IndiGo6E [Thanks.](thanks) I have received credit for 1 PNR
+- I just got my [refund](refund) @YatraOfficial @IndiGo6E [thank you](thanks)
+- [Thank you](thanks) @IndiGo6E  for [refunding](refund) the amount. 
+- [thank you](thanks) @IndiGo6E
+- @IndiGo6E [thank](thanks) you for your support.  I got my [refund](refund) amount.
+- @IndiGo6E [Thanks](thanks) got the amount
+- @IndiGo6E [Thanks](thanks) Team Indigo.
+- [Thanks](thanks)
+- [Thank you ver much](thanks) for your support
+- [Thanks](thanks) for helping me for [refund](refund).
+- [Thanks...](thanks)
+- [Thank](thanks) you very much for [refunding](refund) full amount for my pnr [DLW8RN](PNR)
+- [Thanks](thanks) @IndiGo6E received [refund](refund) amount. 
+- Recevived the amount [thanks.](thanks)
+- Got the amount [thank ypu very much](thanks)
+- @IndiGo6E Got the money yesterday!! [Thanks](thanks) for your support
+- @IndiGo6E Got the money. [Appreciate](thanks) your support
+- [Thanks](thanks) @IndiGo6E
+- @IndiGo6E Thanks
+- @IndiGo6E Dear Indigo staff I really appreciate and acknowledge your support extended me on flight PNR CIGNSM from TRP To RPR. I want to say my sincerely thanks to staff who has booked my ticket and guide me at Tirupati airport. I wish big growth for Indigo Airlines.
+- @IndiGo6E Received thanks
+- @IndiGo6E Thanks you so much for response Travelled with @IndiGo6E on 19th Sept from LKO to CCU flight 6E 6157. Cheers to the entire crew for managing a lot of first time flyers amazingly. Special thanks to Ms. Falak Rashid for going out of the way for maintaining serviceability.
+- @IndiGo6E @mastercardindia @SennheiserIndia Thank you #ToughCookies @drMadhuriBehari @drishanmishra  for being so selfless and brave during these tough times. A millions thanks!
+- @IndiGo6E Got it. Thanks!
+- @IndiGo6E Thanks so much
+- Thanks to @IndiGo6E .. you made my day.. I had wonderful journey in this pandameic.. travelling with 6E always safe...
+- @IndiGo6E Thanks looking forward.
+- @IndiGo6E Hmmm thanks
+- @IndiGo6E Thanks to the team for taking the safety of passangers on priority as always...its always great to travel with Indigo.
+- @IndiGo6E A delightful experience! IndiGo never disappoints! always on time and actually Early! Thanks to all the people who make the journey possible, saved me a lot of hassle
+- @IndiGo6E thanks dear
+- @IndiGo6E  thanks for making it a lean clean flying experience during this pandemic!
+- @Mkjha841Mkjha84 @MaithilAnup @IndiGo6E Thanks you so much sir ji
+- @IndiGo6E Seems you have returned the money ...thanks
+- @IndiGo6E Thanks!!
+- @IndiGo6E Thanks Akshay. I will reach out to @ixigo @ixigosearch.
+- @IndiGo6E Okay. Thanks so much Sheetal.
+- @IndiGo6E Yes and Thanks a lot for immediate response
+- @IndiGo6E Thanks for enabling me to connect west to east.....
+- @IndiGo6E Thanks. Sent
+- @IndiGo6E Ok, thanks!
+- @IndiGo6E Family flew from IDR-DEL today with Indigo, it was a nice clean experience with great professional staff in this tough situation. Thanks for the Safe and Nice Experience. Always recommended.
+- @IndiGo6E @EaseMyTrip @IndiGo6E Thanks for the swift response, I see the refund now in my Paypal wallet.
+- @IndiGo6E Alright thanks
+- Massive thanks and respect to the crew at @IndiGo6E and amazing @ITCHotels for the care they're taking to steer us through our return to the world. All kinds of new procedures to navigate yet every person we met was cheerful, upbeat and calmly handling their new normal job.
+- @IndiGo6E Thanks and I am also hoping for some support in the form of bounty or fame from the indigo team when you verify the issue. Thanks!
+- Great Part of experience. Thanks to team @IndiGo6E who makes our our travel first successful after lockdown
+- @IndiGo6E This is Best customer service I hv ever seen Thanks @ixigo
+- @IndiGo6E thanks. Very much appreciated
+- @IndiGo6E Thanks, appreciate the revert!
+- Safety during Journey. Thanks @IndiGo6E for taking care of customer during #COVID19.
+- @IndiGo6E Thanks u no1 airlines of India
+- @IndiGo6E Thanks it got fixed :)
+- @IndiGo6E All right. Thanks for the information.
+- @IndiGo6E Thanks for your prompt help.
+
+## intent:input_pnr
+- [OHC8GC](PNR)
+- [JGPWRS](PNR)
+- [GQCM8B](PNR)
+- [OHC8GC](PNR)
+- [JGPWRS](PNR)
+- [GQCM8B](PNR)
+- [FGTHYG](PNR)
+- [ASDFGT](PNR)
+- [TGYJ6Y](PNR)
+- [DFVG9F](PNR)
+- [BHJM1Q](PNR)
+- [GVF4ED](PNR)
+- [GVFSLO](PNR)
+- [POIUYT](PNR)
+- [REWQAS](PNR)
+- [DFGH6J](PNR)
+- [KLZ2XC](PNR)
+- [VBNM2G](PNR)
+- [HGTF3K](PNR)
+- [NHVG4F](PNR)
+- [ZSXD5F](PNR)
+- [NJMK6O](PNR)
+- [LKU7YG](PNR)
+- [YUI8JH](PNR)
+- [GHAV9Y](PNR)
+- [JHGD0L](PNR)
+- [GOURWE](PNR)
+- [NOUGFT](PNR)
+- [VGFRDE](PNR)
+- [LOKIJU](PNR)
+- [BHG6TG](PNR)
+- [BHGT1W](PNR)
+- [POHG0I](PNR)
+- [JHGFEI](PNR)
+- [VGFRZS](PNR)
+- [JHGR4E](PNR)
+- [VFDS5T](PNR)
+- [NHZAQS](PNR)
+- [MKGSFR](PNR)
+- [HG4DFR](PNR)
+- [HG5THY](PNR)
+- [KIH6YH](PNR)
+- [GT4RFD](PNR)
+- [UJ6HGF](PNR)
+- [BH9TGH](PNR)
+- [CDF1ED](PNR)
+- [GV2FHJ](PNR)
+- [JF3XKF](PNR)
+- [VJ4HSN](PNR)
+- [CH5FJK](PNR)
+- [PH6SCH](PNR)
+- [FH7YXD](PNR)
+- [MN8VUY](PNR)
+- [CB9JGS](PNR)
+- [QA0CEE](PNR)
+- [MHG67U](PNR)
+- [BGF45F](PNR)
+- [MNB50F](PNR)
+- [ZSE44F](PNR)
+- [XF45RF](PNR)
+- [MJ83YU](PNR)
+- [DR21GT](PNR)
+- [AD83MD](PNR)
+- [KIUU6G](PNR)
+- [NJ99UH](PNR)
+- [GD40HJ](PNR)
+- [GD33DG](PNR)
+- [GGHHYU](PNR)
+- [KJU77G](PNR)
+- [DXYRHK](PNR)
+- [OFYGOP](PNR)
+- [OG99OO](PNR)
+- [GGT6YH](PNR)
+- [KJ76RF](PNR)
+
+
+## intent:surname
+- [Shah](surname)
+- [Jain](surname)
+- [Khan](surname)
+- [Chaudhri](surname)
+- [Sharma](surname)
+- [Gupta](surname)
+- [Singh](surname)
+- [Yadav](surname)
+- [Kumar](surname)
+- [Sanghvi](surname)
+- [Kumar](surname)
+- [Kumari](surname)
+- [Lal](surname)
+- [Kaur](surname)
+- [Devi](surname)
+- [Ali](surname)
+- [Patel](surname)
+- [Patil](surname)
+- [Shaikh](surname)
+- [Ansari](surname)
+- [Arora](surname)
+- [Rathod](surname)
+- [Jadhav](surname)
+- [Mishra](surname)
+- [Roy](surname)
+- [Saha](surname)
+- [Thakur](surname)
+- [Chauhan](surname)
+- [Naik](surname)
+- [Shinde](surname)
+- [Malik](surname)
+- [Sardar](surname)
+- [Nath](surname)
+- [Raut](surname)
+- [Jha](surname)
+- [Solanki](surname)
+- [Pandey](surname)
+- [Pandit](surname)
+- [Kambhle](surname)
+- [Rana](surname)
+- [Chakraborty](surname)
+- [Pathan](surname)
+- [Varma](surname)
+- [Giri](surname)
+- [Reddy](surname)
+- [Bhagat](surname)
+- [Ahmed](surname)
+- [Tiwari](surname)
+- [Verma](surname)
+- [Paul](surname)
+- [Shankar](surname)
+- [Joshi](surname)
+- [Mukherjee](surname)
+- [Banerjee](surname)
+- [Rao](surname)
+- [Bala](surname)
+- [Rahman](surname)
+- [Shukla](surname)
+- [Soni](surname)
+- [Deshmukh](surname)
+- [Pathak](surname)
+- [Nair](surname)
+- [Sawant](surname)
+- [Shaw](surname)
+- [Raval](surname)
+- [Chatterjee](surname)
+- [Bhosle](surname)
+- [Agarwal](surname)
+
+## regex:PNR
+- \b[A-Z0-9]{6}\b
+
+## synonym:refund
+- money back
+- repay
+- refunds
+- refunded
+- refunding
+- initiate the amount
+- amount
+
+## intent:baggage
+- @IndiGo6E Hello indigo,your customer care is misleading, when I called them before booking tickets they told me for [baggage](baggage)-[15 kg](weight) [weight](weight) is allowed inside cargo and [7 kg](weight) [weight](weight) can be taken inside,also I told them in site it is showing [20 kg](weight) [weight](weight) single [bag](baggage) but they said don't worry on that it...
+- @IndiGo6E Unless the airlines makes an effort to board and deboard passengers, and manage [baggage](baggage) belts efficiently, ppe kits and visors are a big farce! #SocialDistancing ... what's that? https://t.co/9kaiN9ber1
+- cabin [baggage](baggage) restrictions uplifted?
+- How much amount charged for [carrying](baggage) extra [1kg](weight)[weight](weight) ?
+- can I [carry](baggage) [power bank](cabin_prohibited) in flight?
+- Im [carrying](baggage) [battery operated toys](cabin_prohibited) and hair [trimmer](product). Where to put them- checked in [baggage](baggage) or cabin [baggage](baggage)?
+- I would like to know that if i can [carry](baggage) an acoustic [guitar](product) along with my [laptop](product) [bag](baggage)on domestic flight?
+- how can I checkin more than 1 check-in [baggage](baggage) and total more than [20kg](weight) [weight](weight)
+- I tried booking extra [baggage](baggage) for domestic flight as there is an international connecting flight within 24 hours of domestic flight.
+- very disappointed with indigo [baggage](baggage) department
+- [baggage](baggage) allowance enquiry
+- Not good experience with [baggage](baggage). I prebooked international [baggage](baggage) as I had a connecting VBM flight but was charged 750 rupees extra per extra [bag](baggage) apar from 1 checkin [bag](baggage) as per their domestic rule.
+- Free [Baggage](baggage) Allowance for International sector ([30kg](weight) check-in & [7kg](weight) cabin [bag](baggage)) should be applicable to domestic sector flight free of charge instead of [20Kg](weight) (check-in) normal allowance
+- I was charged for my excess [luggage](baggage) which was supposed to take into my hand [baggage](baggage) and I was told and given wrong information just to earn extra money unethically, please repay my money.
+- it is showing cabin [baggage](baggage) [0 kg](weight). What does it mean. Am i not allowed to [carry](baggage) bagpack. Please clarify as soon as possible.
+- can I [carry](baggage) [laptop](product) in hand [baggage](baggage)
+- poor experience.paid excess [luggage](baggage) fee
+- I was told at the time of checking in my [luggage](baggage) that, no place will be there to put my hand [baggage](baggage), but when I came in flight, the story is different, and because of that I was charged for my excess [luggage](baggage), is this the way of increasing your earnings 
+- Please let people traveling from abroad some relief with [baggage](baggage) claim and [weight](weight) relief
+- I am flying Indigo tomorrow and [carrying](baggage) philips beard [trimmer](product) with in-built battery. Please suggest, if I should keep it in Check-in [Luggage](baggage) or can [carry](baggage) it as Cabin hand [baggage](baggage)?
+- why charged for extra [baggage](baggage) which can be carried in cabin [baggage](baggage)?? That extra weight can be carried in cabin [baggage](baggage).
+- Are we allowed to [carry](baggage) two hand [baggage](baggage) now, one trolley and one laptop [bag](baggage)?
+- we are a family of four flying from RJA to DEL with confirmation # [HGBD9C](PNR) and a connection in HYD. Can you please let me know how much [baggage](baggage) we can [carry](baggage) per traveller? Also, if there is any excess [baggage](baggage) do we have to pay twice or once all the way to Delhi? 
+- on my ticket email it is shown as hand [baggage](baggage) not allowed could you pls assist me on this ? 
+- i traveled from BLR-DEL yesterday. From my [baggage](baggage) sanitizer, sennheiser wired earphones, wired mouse are stolen.
+- They are saying no [carry](baggage) on [baggage](baggage) as they are not allowing [baggage](baggage) in overhead bins.  I can see many [baggage](baggage) there including some [carry](baggage) on suit cases.  On top of it they put my [carry](baggage) on as checking costing me 2.5k additional.
+- Can we [carry](baggage) two separate check in [baggages](baggage) from Trivandrum to Bangalore on 14/08 since v have an international flight to catch from Bangalore. Please let us know if v can do so? happy to pay 4 the additional [bag](baggage) at the counter if needed.
+- on your ticket you have mentioned cabin [baggage](baggage) is only a small laptop [baggage](baggage) fits under seat, n on aircraft, you let people use overhead storage with excessive [baggage](baggage) size. WHY? 
+- can i [carry](baggage) amazon echo [speaker](cabin_prohibited) and other bluetooth [speakers](cabin_prohibited) in checkin [baggage](baggage)?
+- Would one be allowed to [carry](baggage) [40+ kg](weight) of [baggage](baggage) on a flight from Delhi to Chandigarh after one arrives in Delhi from Canada?
+- can i [carry](baggage) my musical electronic [keyboard](product) of dimensions 95x35x11 cm and [weight](weight) approx [6kg](weight) in checkin [baggage](baggage) or cabin [baggage](baggage)?
+- can i [carry](baggage) an acoustic [guitar](product) as cabin [baggage](baggage)?
+- can I [carry](baggage) [desktop](product) in the checkin [baggage](baggage) without exceeding the basic [weight](weight) range.
+- can I [carry](baggage) [induction cooktop](cabin_prohibited) in hand [baggage](baggage)? My flight is scheduled for tomorrow. please check and revert?
+- One more thing can I [carry](baggage) Philips Daily [Induction Cooktop](cabin_prohibited) in hand [baggage](baggage)?
+- can you tell me about [baggage](baggage) allowed? And how much for extra [baggage](baggage) and what is that 2000 rs extra [baggage](baggage) pre booking ?
+- I have raised and invalid issue kindly check your [baggage](baggage) policy.
+- in that one hand [baggage](baggage) is it allowed to [carry](baggage) two [laptops](product) within [7 kg](weight)?
+- Can I [carry](baggage) two [laptops](product) in my hand [baggage](baggage) if it is under [7kg](weight)? Also, how are the charges for more than 7 in hand [baggage](baggage)?
+- can I take a 10400 mAh [battery bank](cabin_prohibited) in my cabin [baggage](baggage) during domestic  travel within India ?*
+- can i bring my [Desktop](product)as cabin [baggage](baggage) and CPU as check in [baggage](baggage)?
+- when booking your website is saying hand [baggage](baggage) not allowed, does that mean no [bag](baggage) at all?
+- [Baggage](baggage) allowed per passenger is [20 kg](weight), correct?
+- can I [carry](baggage) electronic [trimmer](product) in cabin [baggage](baggage).
+- Will there be any extra charges if the [guitar](product) goes in check-in [baggage](baggage)?
+- can I [carry](baggage) my [guitar](product) in a hard case along with my [20 kg](weight) check in [baggage](baggage)?
+- Can we take [batteryless DC power supply](cabin_prohibited) with us in [luggage](baggage) ?
+- you stated that only check-in [baggage](baggage) allowed,I have to [carry](baggage) most important documents along with me can I take a single bag only documents will be present in that [bag](baggage).
+- how to [carry](baggage) [laptop](product) if you are not allowing for hand [baggage](baggage)
+- personal [glucometer machine](product) with coin cell [battery](cabin_prohibited) should be checked in or carried in hand [baggage](baggage)
+- what is the cabin [luggage](baggage) allowance for domestic travellers?
+- Am I allowed to [carry](baggage) [cigarette](product) [lighter](prohibited) in cabin luggage.
+- can i [carry](baggage) [knives](prohibited), [scissors](cabin_prohibited) in hand or check in [luggage](baggage).
+- @IndiGo6E Sir, my PNR is [KPF77U](PNR) &amp; tomorrow is my date of journey. I want to know how many [kgs](weight) [weight](weight) is allowed for Hand [Baggage](baggage) &amp; check-in [baggage](baggage)
+- @IndiGo6E Ok, thanks for your quick reply, but I am hearing my friends being able to use overhead bin as well, because having [7 Kgs](weight) as [laptop](product) [bag](baggage) is very rare. Can I use a smaller size overhead [bag](baggage) compared to earlier practices ?
+- @makemytripcare @IndiGo6E Hv flight from BLR-JDH on Sep27, MMT app says that cabin [baggage](baggage) of size only under seat allowed, what is it exactly, can I [carry](baggage) [7 kg](weight) like earlier or no ?
+- @IndiGo6E @IndiGo6E: So basically for two people up to [40 kg](weight) checkin [baggage](baggage) is allowed. I just want to make sure so that I don't need to pay extra charges. One more thing are we supposed to keep [laptop](product) [bags](baggage) only below the seats in front of us now!!..
+- @IndiGo6E I didn't understand: I have 2 [bags](baggage) for check-in. Together their [weight](weight) is less than [20Kg](weight). In this case, I should pay Rs. 750 extra?
+- Hi @IndiGo6E I have questions regarding domestic flights 1. Are the overhead bins not allowed for [baggage](baggage) storage? 2. I have 2 checkin [bags](baggage) total less than [20kgs](weight), is it allowed?  
+- @IndiGo6E This is mentioned on my reservation email received from indigo.  Check-in [Baggage](baggage): [20 Kg](weight) per person (One piece only). Extra [10 kg](weight) will be provided in case double seat has been booked. Additional charges will apply for excess [baggage](baggage)
+- @IndiGo6E dear Indigo, baggage policy for double seat booking is so confusing even your customer care is unable to provide clear answer if extra [10kg](weight) is allowed in [check-in](baggage). Can you confirm if a passenger is eligible for [10kg](weight) extra [baggage](baggage) on booking double seat?
+- @IndiGo6E @PWNeha @IndiGo6E Can I [carry](baggage) a backpack and my acoustic [guitar](product) case in cabin [baggage](baggage)? If the total of both is less than [7 kg](weight)?
+- @InterMiles the flight booking database on your site, powered by @EaseMyTrip needs to be updated to reflect correct info. For eg. @IndiGo6E nowadays doesn't allow cabin [baggage](baggage), also they have increased check-in bag limit upto [20kg](weight). Your website shows old and wrong info. Pls check! https://t.co/FGAOQ67ZjF
+- @IndiGo6E I see that my cabin-[baggage](baggage) is [0Kg](weight). Can I [carry](baggage) my [laptop](product) bag or I will be charged for it?
+- @IndiGo6E Checked [Baggage](baggage) Allowance: [20 kg](weight) per person (One piece only). Extra [10 kg](weight) will be provided in case double seat has been booked. Additional charges will apply for excess baggage Plz tell me max check-in [baggage](weight) allowed.
+- @airindiain Hope other airlines should come up with similar thoughts, All domestic airlines should align and allow a min of [23 Kg](weight) for all flights and a cabin [baggage](baggage) so that they align with international standards . Not like @IndiGo6E who don’t allow cabin [bagage](baggage) and levy extra charges.
+- Hi @IndiGo6E I will be travelling with 3 [laptops](product), combined [weight](weight) is approx [7 kg](weight). Can I keep those in the cabin [baggage](baggage)? What if the weight is slightly over, not more than [1kg](weight)? Asking for domestic flights
+- @IndiGo6E Hey there, I am traveling from Mumbai to Hubli next week. If I prebook [10kgs](weight) additional [baggage](baggage) does it mean I can [carry](baggage) 2 bags totalling [30kg](weight) or 1 [bag](baggage) containing [30kg](weight) in check in [baggage](baggage)??
+- @IndiGo6E : Hello Team, QQ- Since Check-in [baggage](baggage) has increased to [20kgs](weight)/person, can I take my bike ([13kgs](weight)) with me without paying extra ? This will be the only [baggage](baggage) I would be [carrying](baggage) alongside a [laptop](product) bag. Thanks
+- @IndiGo6E shame on you. Taking advntg of flyers at last minute for cabin [baggage](baggage). [7kg](weight) includes your electonics and duty free shopng. #dontflyindigo
+- '@IndiGo6E Not good experience with [baggage](baggage). I pre-booked international [baggage](baggage) as I had a connecting VBM flight but was charged 750 rupees extra per extra bag apar from 1 checkin [bag](baggage) as per their domestic rule. You expect passengers to pack [80kg](weight) in one [bag](baggage).',
+- @IndiGo6E IndiGo's Free [Baggage](baggage) Allowance for International sector (30kg check-in and [7kg](weight) cabin [bag](baggage)) should be applicable to domestic sector flight free of charge instead of [20Kg](weight) (check-in) normal allowance, please confirm the same (2/2) Thank you.
+-  '@IndiGo6E wanted to check what are [baggage](baggage) allowance for travel from Bhubaneswar to Bangalore. The partner sites shows [20kg](weight) as checkin [luggage](baggage). And how about the hand/cabin [luggage](baggage).. Earlier it used to be for [7kgs](weight) if I correctly understand.'
+- @IndiGo6E , how can I checkin more than 1 check-in [baggage](baggage) and total more than [20kg](weight). I am ready to pay additional cost. Travelling from BLR to CCU.
+- @IndiGo6E can we book a ticket from Dubai to Mumbai with [40 kg](weight) checkin [luggage](baggage).',
+- Can I buy extra [luggage](baggage) allowances. .I have a [guitar](product), can I book it?
+- @IndiGo6E hey tomorrow I am going to travel from prayagraj to Mumbai, I want to know whether I can [carry](baggage) [shaving kit](product) along with small [scissor](cabin_prohibited), [nail cutter](product), [nail filer](product) and some [jewellery](product) along with me in hand [baggage](baggage) or not?(check)
+- @IndiGo6E Hi, is philips 1000w [hair styler](product) allowed to [carry](baggage) in cabin [bag](baggage) ? Please let me know. https://t.co/zTUqwZOgpT
+- @IndiGo6E Are we allowed to [carry](baggage) small brass [idol](product) of Lord Krishna in the cabin/hand [baggage](baggage)?
+- @IndiGo6E Hi there, I am travelling tommorow and have a question. Since cabin [luggage](baggage) is not allowed. Pls let me know if I can [carry](baggage) my [laptop](product) with my laptop bag ? Or move it to check-in luggage. Pls advise
+- @IndiGo6E if the [sanitizer](product) is not allowed in hand [baggage](baggage), then how would we sanitize hands.
+- @IndiGo6E @AAI_Official I want to know that how much quantity of hand [sanitizer](product) &amp; disinfectent [spray](product) are allowed in chekin &amp; hand [baggage](baggage)?
+- @IndiGo6E is [power bank](product) allowed in hand [baggage](baggage) in Indigo flight?
+- @IndiGo6E dear sir can I [carry](baggage) [Sanitizer](product) in cabin [bag](baggage) in domestic flight
+- 'Dear @IndiGo6E ,I am planning to travel BBI from Pune. I am having one confusion regarding [baggage](baggage) rule. As per the below screenshot, can I bring two [laptop](product) in one bag? Which is combinely less than 7 kg. https://t.co/u3K2J3FE90',
+- Dear Sir, We r travelling from Tuticorin to Chennai in Indigo flight. We wish to [carry](baggage) Farm [Vegetables](cabin_prohibited) duly packed and in plastic bag. Can we book in checking [baggage](baggage) or can we [carry](baggage) in hand [luggage](baggage). Please reply.@IndiGo6E',(Check)
+- @IndiGo6E a) Is cabin [baggage](baggage) not being allowed in over-the-head cabins ?, b) I have a [laptop](product) backpack (50cm X 32cm X 23cm).Is there enough space beneath the seat to keep such a [bag](baggage) ? ,c) What is the fees and how &amp; where can it be paid at the airport for extra piece of [luggage](baggage)? https://t.co/x71VCpNIl0',
+- @IndiGo6E Regarding [baggage](baggage) I will travel with two more passengers so we will have total 3 Check In [bags](baggage) & 2 [handbags](baggage). We are in same Family. So it is allowed I want to know it ? I will travel with ur flight on 20th & 29th October respectively. 3 persons in my family
+- @IndiGo6E hi, I have small cabin [baggage](baggage) which I need to [carry](baggage) during my travel. Whether overhead space are allowed to use or not. If it is not allowed can it be putted in checkin [baggage](baggage). We are three persons travelling including a child.
+- I am planning to travel from Hyderabad to Ghy , however on enquiring I got to know I can [carry](baggage) [20 Kgs](weight) [luggage](baggage) ( trolly +[guitar](product)) and [laptop](product) [bag](baggage) as my hand [bag](baggage) , is this right ?
+- @IndiGo6E As per latest rules, what's the limit of [alcohol](alcohol) that I can [carry](baggage) in Checked-in baggage for a Domestic Flight?
+- @IndiGo6E Hi, need help with the information on [baggage](baggage) (cabin+checked in) allowance and [liquor](alcohol) allowance in domestic flight during covid 19?
+- @flyspicejet @IndiGo6E can I [carry](baggage) [alcohol](alcohol) in check-in [baggage](baggage) from goa to mumbai and what is the maximum allowed limit?
+- @IndiGo6E can I [carry](baggage) 3 [liquor](alcohol) bottles
+- @IndiGo6E @scndthoughts Can I [carry](baggage) 6 bottles ,each bottle contains 750ml [alcohol](alcohol)
+
+## synonym:baggage
+- bag
+- luggage
+- baggages
+- carry
+- carrying
+
+## intent:seat
+- travelling with my wife and twin babies tomorrow in 6E118. Not able to [select](select) nearby [seats](seat) even though they are free. have [selected](select) auto [seat](seat) [assign](select) for now. 
+- Please [assign](select) nearby [seats](seat) or allow to [select](select) nearby [seats](seat). 
+- can i [select](select) my own [seats](seat) for free? 
+- Why is the option to [select](select) adjacent [seats](seat) not available during web checkin?
+- care to explain why you've made every [seat](seat) chargeable to consumers ? 
+- How can I change the [seat](seat)-map on your website?
+- with infant I am not able to [select](select) 1st row [seats](seat) is there any specific reason?
+- How about a family travelling and wanting to sit together? They are bound to pay, right? Else ur auto [seat](seat) [assignment](select) will obviously throw them randomly. Can u please help me web checkin? I dont wish to pay any money for [seat](seat) [selection](select) and want to sit with family.
+- window/aisle [seats](seat) in the last rows didn't have to be paid for pre-pandemic. not sure why it has changed now 
+- shamelessly charging for adjacent [seats](seat) when I want to sit next to a family member
+- I am unable to choose the auto [seat](seat) [selection](select) option and it is not showing. 
+- first you charge extra for a [seat](seat) in name of auto [seat](seat) [assignment](select) and then at the time of boarding tell that aircraft is changed hence you cant have [seat](seat) as per your preference
+- Why need to pay extra for [seats](seat)? 
+- I'm trying to book [seat](seat) online however payment is getting rejected. Could you please assist?
+- i m doing web check-in it is asking for money and not letting me [choose](select) the free [seats](seat) 
+- Next time you allot [seats](seat) please consider the elderly people.  
+- If Webcheck in is mandatory how can you charge for [seats](seat) ? Else designate free [seats](seat) - not a single available [seat](seat) is marked for free ? This is just extra charges. 
+- one is forced to pay for a [seat](seat) which is not correct. I have paid now Rs 350 for a [seat](seat) [assignment](select). 
+- 3 tickets booked together mother and 2 kids but yet different [seats](seat) offered and had to opt for paid [seats](seat). Felt cheated and did not expect this from Indigo
+- I have booked a Indigo flight by paying flexi plus fare but my [seats](seat) didn't get [select](select) due to the app's issue with which I booked. Can you help me out?
+- boarding pass is not sent on time (12hrs before) when you check in through auto [seat](seat) [selection](select) and at the time of check-in no free [seats](seat) are available for [selection](select) and when boarding pass is sent it comes with free [seats](seat) [selected](select)...very cheap to do such things.
+- [Seats](seat) are subject to availability does not mean middle [seats](seat) are not available at the time of check-in and when auto generated boarding pass come they come with middle [seats](seat) is it not strange or something to investigate internally
+- This is with respect to all middle [seats](seat)..so indirectly force customers to buy [seats](seat) at the time of check-in as free [seat](seat) option is not available to [select](select)!
+- problem continues. Not allowing to [seat](seat) [select](select) for web check-in today for rescheduled flight. 
+- extra [seat](seat) [selection](select) fee of 250 is debeted from my google pay but unable to [select](select) the [seat](seat)
+- I am having worst customer experience with your booking, we can understand the rescheduling but why are you asking to pay for the [seats](seat) again, and  why should I settle for options that are not good after already paying much in advance for the [seats](seat) during the booking.
+- IndiGo6E Airlines have started charging for [seats](seat) due to mandatory web checkins. This is on top of entire bill an taxes already paid. Most of the times no free [seats](seat) are available an we are forced to pay for [seats](seat). We have no choice
+- you can show the vacant [seats](seat) in options which anyway you will allot at the counter and not just give us an option see only the paid [seats](seat). Not fair to charge this way for economy [seats](seat) as it's already a part of the fare + plus you have excess capacity.
+- I paid Rs 150 extra for Window [seat](seat) while booking but allotted with middle [seat](seat). What about my extra money and your promises....
+- I tried to do a webcheckin since that is mandatory but could not find free [seats](seat). Do you expect my parents to be sitting on far separate [seats](seat) bcz only middle [seat](seat) was free nd now there are none.
+- you are rather putting a scam by charging us for [seats](seat).. There is no measure of maintaining social distancing. There should at least be a gap of 1 [seat](seat). But No! All [seats](seat) one after the other and we are being charged for it
+- On 29th there is flight of my brother. By 2pm and connecting flight by 6pm but still [seat](seat) [selection](select) link is not open for me.
+- We have scheduled flight  on 29th August Saturday 4:30p.m. for 3 passengers including 2.5 years kid . During web check-in, there is no any row available with three continue [seats](seat).when asked from customer care ,they are asking for charge again to [allocate](select) continue [seat](seat)
+- While booking tickets I had [selected](select) [seat](seat) by paying 150 Rs extra but while web check in my [selected](select) [seat](seat) chosen showed 'already booked' and I was [assigned](select) a different [seat](seat). Please help. Can i get a refund.?
+- @Cleartrip Dear team please make it ASAP as only 2 [seats](seat) are left, please call me to book the [seat](seat) My mobile number is 00971508516536 @Cleartrip @IndiGo6E
+- @IndiGo6E Please [assign](select) the [seats](seat) for [BFF9NV](PNR) for boarding pass
+- @IndiGo6E please help in chkin pnr [BFF9NV](PNR). Cant [select](select) [seat](seat)
+- @IndiGo6E  not able to check in [BFF9NV](PNR) pnr no [seat](seat) is [selected](select) please help
+- @IndiGo6E @MoCA_GoI  My PNR no is [NMJKQQ](PNR). There are 6 passengers of which 2 Senior citizen with wheel chair and 2 kids below 10. Your auto [assign](select) has allocated everyone a separate [seat](seat) and senior citizen middle [seat](seat) for which they have to wear PPE Kit. Can you help.
+- Flying by 6E2405 want to ask @IndiGo6E what is the fun in buying the first row when with 174 load on the flight u still fill ur middle [seat](seat) in first row with non purchasers of [seats](seat) ...frequent flyers shud think twice before booking
+- @IndiGo6E why you are cheating your customers with pre [assigned](select) [seats](seat) at the time of so called mandatory web check in. I have flight tomorrow and not going to pay this at all.
+- @DGCAIndia @IndiGo6E please note that in Flight no. 6E5055, covid related social distancing norms not being followed. [Seat](seat) no. 23C called a flight purser to request the person [seated](seat) at the window to wear his mask but no one is bothered about these things.
+- @IndiGo6E Middle [seat](seat) person is given ppe gown. Rest all face shield and mask
+- @IndiGo6E If they are running full, are there any measures in place to avoid any harm if any like distancing while [seating](seat)
+- @IndiGo6E Y don't u ask the pax to remain [seated](seat).... strictly...seems u just fullfil the PA formalities...
+- @IndiGo6E Hi Team, do you keep the middle [seat](seat) vacancy in all domestic flights m travelling with parens and my infant from pune to jaipur. Plz reply
+- @IndiGo6E Team, i want to fly alone ,why i should book more than 2 [seats](seat) ?
+- @indigo6e conveniently doesn't send boarding passes on time (mind you boarding passes are necessary to enter airports these days) and then 4) Makes you [select](select) a [seat](seat) for a heavy price (almost nil Free [seats](seat) available)
+- @IndiGo6E how I can secure a [seat](seat) in chartered  flight going to Saudi before September 28
+- I didnt realize how much Ive missed flying until I strapped myself in that window [seat](seat) on @IndiGo6E
+- I think @IndiGo6E  loves me very much... Always get window [seat](seat) for free
+- @IndiGo6E your ways of extracting money from Customers these days are really unique. So after I have paid for my ticket , to do webcheckin I need to pay for [seats](seat)!! And if I dont go with paid options you dont provide me boarding pass?? Ticket doesnt come with a [seat](seat)!! Wow
+- Why should I choose auto [assign](select) option and [select](select) any [seat](seat) when I have paid premium amount for Corporate Booking ? @IndiGo6E offers complimentary extra legroom [seats](seat) under Corporate Booking.
+- @IndiGo6E It is sad to separate ppl in economy class by getting money in picture.. the [seat](seat) [selection](select) logic needs scrutiny
+- @IndiGo6E I wonder why no one gets window or aisle [seat](seat) via that random logic. Logic is not random. It cannot be. I booked 4 [seats](seat) and got 4 center [seat](seat). Check the empty [seats](seat).
+- @IndiGo6E - booked two tickets with 2 passengers each and auto [seat](seat) [selection](select) [assigned](select) 4 center [seats](seat) in different rows. flight shows around 150 empty [seats](seat) with charges from 1000 to 150. 2 passengers are senior citizens. 
+- Why are you charging all [seats](seat) during web check-in process? You're charging high price for legroom [seats](seat) for premium Corporate booking. UNETHICAL. 
+- @IndiGo6E Flight number 6E 6248,I wish to know if Row number 13 is RECLINABLE and has extra leg space? Also mention any other [seat](seat) with same features asap,i need to book after knowing it
+- @IndiGo6E it's so sad that indigo doesn't allow you to choose the free [seats](seat) while web check in. Why have that option then!
+- @IndiGo6E Hi, I was able to do web check-in, but the auto [allocation](select) has allotted side by side [seats](seat), B and C, hope the airline still follows social distancing norms , or , look into the auto [allocation](select) algorithm. Doesn't seem to be updated for CoVID protocols.
+- @IndiGo6E a booking made more than a month ago after paying extra for front row aisle [seat](seat), flight is now canceled. Yes, it is not in your control. But what is in your control is to treat a customer with a little more sensitivity
+- @IndiGo6E If you want to maintain social distancing, then please keep middle [seat](seat) empty and not travel full capacity. The "lighter" @IndiGo6E keeps the airline, the better it is. There is absolutely no logic in what you are saying.
+- Good going @IndiGo6E , every [seat](seat) apart from middle is chargeable which everyone knows that customers wont prefer during #COVID19 Understand ur financial stress on airlines but this just feels like #profiteering and definitely nt customer friendly. 
+- Another disappointing experience with @IndiGo6E today 2 passengers have been [assigned](select) the same [seat](seat), creating inconvenience How careless can an airline be considering the current #Pandemic situation
+- I do not understand why are u charging extra for [seats](seat) while web check in whereas other airlines are giving free meals and [seats](seat) u should learn from @IndiGo6E  No more bookings from u got to know you scammers, ur customer service is worst #GoairScam#Fraud
+- Also, in front section  i could see middle [seats](seat) are availble, whereas at back middle [seats](seat) are not available/ occupied? is it not mandatory to leave middle [seats](seat)?
+- @IndiGo6E [LPDFTX](PNR) pnr delhi to bangalore i dnt want to pay extra charge for [seat](seat) [selection](select)
+- @IndiGo6E Thanks. But is web check-in not mandatory? If I have to do web check in, I have to [select](select) [seat](seat) also. So will airport check-in counter be able to change the [seats](seat) [assigned](select) to me during web check-in?
+- @IndiGo6E Travelling with my child and my wife. Can not [select](select) the middle [seat](seat) such that all three of us are [seated](seat) together in a row while doing web check in. Can the [seats](seat) be changed at the airport counter?
+- You randomly changed my [seats](seat) which I had carefully [selected](select) for my wife and me, considering social distancing norms, so we got same row!
+- @IndiGo6E is the money given at time of ticket booking not enough get [seat](seat) together with travel partner? Not asking for xl or any special [seat](seat) just a [seat](seat) together. I m doing a web check and to my surprise all [seats](seat) a paid. Dont be such sellouts shame on you.
+- @IndiGo6E Y money is being charged for [seat](seat) [selection](select) n also r u flying with full [seat](seat) occupancy in current pandemic
+- @IndiGo6E if web check-in is mandatory, Why and I being forced to pay for [seats](seat) for web check-in?? Don't I have the right to check in at the airport counter ? Is this how you try to make money? By taking advantage of consumers in time of need ?
+
+## synonym:select
+- selection
+- assign
+- assignment
+- assigned
+- choose
+- allocate
+- allocation
+
+## intent: flight_status
+- @IndiGo6E how can I [book](book) my ticket from [Hyderabad](location) to [Riyadh](location) ? It doesn’t show anything on your website
+- @IndiGo6E @BLRAirport can i [book](book) ticket on 5th october [New delhi](location) [saudi arabia](location) as I have valid exit re entry visa for [saudi arabia](location)
+- @IndiGo6E @MDAFZAL85935274 Is there [booking](book) started for [Saudi Arabia](location)?Still there is no showing up notifications.Plz share schedule for [bookings](book).
+- IndiGo6E  I want to travel [Jeddah](location) ([Saudi Arabia](location)) [Ahmedabad](location) ([India](location)) on 20th October.  I have checked in yr web site [flight](flight) is showing. How to [book](book) ticket ?This [flight](flight) actually operating?
+- @IndiGo6E we can [book](book) the ticket [saudi arab](location) because i chcek the [flight](flight) schedule after 30th September there showing me filghts availability for [KSA](location).
+- @IndiGo6E sir iwant [book](book) my [India](location) [Saudi](location) it's possible or not.
+- @IndiGo6E @AzadAli48245115 is ticket [booking](book) available  from 1st oct  [saudi arabia](location) also?
+- @IndiGo6E hello Pl tell me  if the is direct [flight](flight) [doha](location) [mumbai](location). My brother working in [doha](location) want to come by in [india](location) [mumbai](location). Can he [book](book) direct [flight](flight).? Will he need vande mataram mission registration.? Is it mandatory?
+- @IndiGo6E Sir when you're going to start international [flights](flight) [India](location) [Saudi](location). And when [booking](book) starts please advise sir
+- @IndiGo6E On [booking](book) portal the [flights](flight) are available [lucknow](location) to everyday.. Could you clarify the available [flights](flight) are also suspended
+- @airindiain @HardeepSPuri @PMOIndia @HMOIndia @IndiGo6E @Saudi_Airlines  sir what about [flights](flight) [saudi](location).i am eligible to travel.but no [booking](book) details published.many people are suffering from this.please inform clear information about [flight](flight).because our visa is expiring on 30sep
+- @IndiGo6E Are you operating your [flights](flight) [saudi](location) from October.I can see the [booking](book) is opened from del to [riyadh](location) in October. If I book a ticket and [flight](flight) will not operate then,how will you compansate
+- @IndiGo6E pls let me know whether [kolkata](location) [bagdogra](location) to and fro [flight](flight) becomes operational. Planning to [book](book) [kolkata](location) [to bagdogra](location) [flight](flight) for 23rd oct 2020. Please advice if advance [booking](book) is feasible
+- @IndiGo6E @flyspicejet When will the [booking](book) start for [Darbhanga](book) [to Delhi](location)
+- @IndiGo6E It shows [booking](book) for a month of oct. so will I able to travel [turkey](location) on visit visa [from Mumbai](location) pls let know so that I plan accordingly
+- @IndiGo6E   Hello sir my friend wants to come to [Jaipur](location) from [Saudi Arabia's Damam](location) by [booking](book) online, please kindly provide complete information
+- @IndiGo6E When you open [flights](flight) from [Delhi](location) to [riyadh](location) one more thinks [delhi](location) Airport [flight](flight) schedule yesterday I was seen your services still run but why you did not takes normal [bookings](book)
+- @IndiGo6E there is a [flights](flight) from [India](location) to [saudi Arabia](location). [booking](book) showing at your indigo app plz conform me thank you
+- The [booking](book) for the [flight](flight) from [Istanbul](location) to [Delhi](location) is accessible. Is the [flight](flight) confirmed? @IndiGo6E. In case if the [flight](flight) is cancelled, will the fare be refunded? https://t.co/5uQRX0Y1yR
+- @IndiGo6E Dear Sir/Mam is there any [flight](flight) schedule from [India](location) to [Saudi Arabia](location) as several [booking](book) platforms showing Indigo [flight](flight) options from the 1st of October 20 for [Saudi Arabia](location),Please advise us. Thanks
+- @IndiGo6E Hi, I am seeing that [bookings](book) are open for [BOM](location)-[DMM](location) effective 1st October. Could you confirm that KSA won't prevent Indians' entry on account of Covid ?
+- @IndiGo6E hello can i [book](book) october [flights](flight) listed in your portal for [singapore](location)?
+- @IndiGo6E IndiGo showing [flight](flight) in october from [Delhi](location) to [Riyadh](location)... So we can [book](book) now
+- @IndiGo6E U are showing booking in October frm [Hyderabad](location) to [Dammam](location) can we [book](book) the ticket
+- @IndiGo6E  is the international [flight](flight) to [Singapore](location) opened? I see, the [booking](book) is allowed from indigo website?
+- Dear @IndiGo6E  can I [book](book) online ticket as shown on @goibibo on 2 Oct from [Riyadh](location) to [delhi](location)????
+- @IndiGo6E dear sir I want to [India](location) in Oct 1st week can I [book](book) ticket online now I am here In [saudi Arabia](location), [jeddah](location).
+- @IndEmbDoha Sir, i want a [book](book) [flight](flight) in month of October from [Doha](location) to [Mumbai](location) but I want to know that now need embassy registration for [booking](book) [flight](flight) or no need..? @IndiGo6E @IndEmbDoha @FlyWithIX @airindiain
+- Hey @IndiGo6E..... r u preparing for starting [flight](flight) [booking](book) from [Darbhanga](location) or not???
+- @IndiGo6E Yesterday I heard one of travel agency that now indigo [flights](flight) are also available from [Dubai](location) [sharjah](location) to fly [Lucknow](location). Please clarify this news before I [book](book) my ticket. Waiting your confirmation. Thank you
+- @IndiGo6E I have to [book](booking) ticket online or at air port
+- @IndiGo6E @IndiGo6E @makemytrip @makemytripcare @IndiGo6E @makemytripcare @makemytrip Hi, I have a [credit shell](shell) and need to [book](book) a ticket urgently, unable to [book](book) through @makemytripcare  website. No resolution received from makemy trip. @IndiGo6E please help urgently!
+- @IndiGo6E @DGCAIndia My PNR - [QWVM7H](PNR) , I want to know about the [credit shell](shell) , as I am unable to [book](book) the ticket with this [credit shell](shell) .
+- @IndiGo6E Please help me [book](book) my [flight](flight) using my [credit shell](shell). @Paytm fraudsters are not letting me [book](book) and its been 3 days. Their service is pathetic. #PaytmRemoved #paytmmatkaro #indigoairlines #Paytmdown #paytmbanned #paytmfraud #Paytm https://t.co/lVpYr0F6Gg
+- @IndiGo6E Hi, I am trying to [book](book) [flight](flight) ticket using [credit shell](shell) account, but I am unable to. Please please please help. Its very  urgent
+- @IndiGo6E hello there, I have some urgent query on the [booking](book) [flight](flight) ticket. Need urgent revert in DM
+- @IndiGo6E  I am unable to use my [credit shell](shell) while [booking](book) the [flight](flight). Can someone please help ?
+- @IndiGo6E  i tried a lot to [book](book) my ticket using [credit shell](shell) money but i am unable to [book](book) it shows some thing wrong.. https://t.co/fT4BsYcwVa
+- @IndiGo6E pnr# [HG54TF](PNR), I had [booked](book) this ticket for my parents to travel from [Delhi](location) to [Kochi](location) on the 5th of March for the travel date of 24th may.  This was subsequently cancelled by you and now my money is stuck in a [credit shell](shell). Now I am trying to[book](book) a ticket for my sister.
+- @IndiGo6E how can I [book](book) ticket from my [credit shells](shell).
+- @IndiGo6E @Cleartrip dear all I tried calling but no response, please assist in [booking](book) ticket against my Below [credit shell](shell) https://t.co/0zhL8bxhR6
+- @IndiGo6E why we cant use [credit shell](shell) for another [booking](book)? We already [booked](book) ticket on 25th may but [flight](flight) has cancelled due to covid 19 restrictions
+- @IndiGo6E need one help with a [booking](book). Where can I send you the details?
+- @makemytrip Unable to retrieve my [credit shell](shell). Need to [book](book) a ticket in @IndiGo6E. Please help. Indigo says [credit shell](shell) is with MMT.
+- @IndiGo6E I want to use this [credit](shell) voucher to [book](book) [flight](flight) tkts for my brother and mother...  Will allow me to do so...Or kindly refund the same to my bank account.
+- @IndiGo6E why we cant use [credit shell](shell) for another [booking](book)? We already [booked](book) ticket on 25th may but [flight](flight) has cancelled due to covid 19 restrictions
+- @IndiGo6E need one help with a [booking](book). Where can I send you the details?
+- @makemytrip Unable to retrieve my [credit shell](shell). Need to [book](book) a ticket in @IndiGo6E. Please help. Indigo says [credit shell](shell) is with MMT.
+- @IndiGo6E As per your website [booking](book) is open.Is it confirm schedule
+- @IndiGo6E hi team, I had [booked](book) my [flight](flight) through a travel site and now I am unable to use my [credit shell](shell)..due to some or the other issues with the site. Is there a possibility I can directly use this [credit shell](shell) on your site and [book](book) my ticket using [credit shell](shell)! Please help
+- @Cleartrip your email ids are not working. Your support on the site does not show these cancelled [flights](flight) or [credit shells](shell). You don’t have a phone number ... I want to use my [credit shells](shell) and [book](book) tickets.. how to do that @IndiGo6E why can’t I [book](book) on your site.
+- Dear @IndiGo6E I am Planning to [Book](book) [LKO](location) TO [SHJ](location) Ticket. I have visit visa so what's Documents Required to travel.
+- Hi @IndiGo6E I am unable to use my [credit shell](shell) amount I am using my all the old details that I use while [booking](book) please help @EaseMyTrip and @IndiGo6E
+- Hey can I use my [credit shell](shell) to [book](book) tickets for my family members ? @IndiGo6
+- @EaseMyTrip @IndiGo6E I can’t access my [credit shell](shell) to make a new [booking](book) even after giving the same details.
+- @IndiGo6E could you please update me on the [status](status) of this [flight](flight)? Will it be operating? https://t.co/QssKrMpqRm
+- @IndiGo6E Hi Indigo, I need to check the [flight](flight) [status](status) of 2 [flights](flight) on the 14th. Have sent you a DM, please check.
+- @IndiGo6E Sir,Today How many Indigo Airline carrier reached at [Dubai](location),[UAE](location) ? What are the PRESENT [status](status) of today [flight](flight) of Indigo from [India](location) to [Dubai](location).Are all reached there on time today?How many of [flights](flight) of indigo between [India](location) to [UAE](location) are cancelled today?Please guide
+- Hi @IndiGo6E , need to check about a [Kolkata](location)-[Bom](location) [flight](flight) [status](status) for 16th Aug. Kindly help!
+- @IndiGo6E dear indigo, i hv [booked](book) a [flight](flight) from [ccu](location) to [maa](location) on 16th aug. Since covid19 restriction extended in [west bengal](location), i would like to know about my [flight](flight) [status](status) In indigo site [flight](flight) [status](status) showing up to 14th August only.
+- @IndiGo6E Just one thing pls tell me now what is this [flight](flight) [status](status).
+- Have a scheduled [flight](flight) on 29th Aug From [Pune](location) to [Kolkata](location) on @IndiGo6E. Please let me know about the [status](status).
+- Hey @IndiGo6E can you help me about my [flight](flight) [status](status). 
+- @IndiGo6E Good morning. Please let us know the [status](status) of the [flight](flight) 6E7128 from [Kozhikode](location) ([ccj]](location)) to [Bengaluru](location) ([BLR](location)) at 18:30 this evening. Thanks
+- @IndiGo6E [status](status) of [Srinagar](location) to [Bhuvneshwar](location) [flights](flight) are takeoff or not
+- @IndiGo6E hello Indigo What is the current [status](status) of international [flights](flight)? Is [flights](flight) resumed? Need to go [Dammam](location) as soon as [flight](flight) will resume.
+- @IndiGo6E what is your [flight](flight) [status](status) from [Mumbai](location) to [Kolkata](location) 1st sept  onwards. Which dates [flights](flight) are operating.
+- [India](location) to [Qatar](location) [flights](flight) from sept 1st, what is the [status](status)? @IndiGo6E @airindiain @qrsupport @qatarairways
+- @IndiGo6E It means my be first week of September [flights](flight) will be started from [bangkok](location) to [Delhi](location) please clarify what is the [status](status) .
+- @IndiGo6E : Will there be any new [flight](flight) schedule for September 2020, I want to know the availability and [status](status) of 6E 525 (IXA-BLR) At the moment [bookings](book) are open for September on above [flight](flight)? Will there be any change ?  Or I can go ahead and [book](book) tickets?
+- Hi @IndiGo6E ,I want to know my [flight](flight) [status](status) . PNR : [VNZR6A](PNR) From [Pune](location) to [Dehradun](location) on September 4th. I didn't receive any communication from airlines regarding the latest [status](status).
+- @aaibplairport @IndiGo6E @AAI_Official @aairedwr Is the schedule same for 4th September as well? I have [flight](flight) from [Delhi](location) to [Bhopal](location), IndigoÂ 6E - 2022. Kindly let me know the [status](status).
+- @IndiGo6E what is the [status](status) of [flights](flight) between [India](location) and [Qatar](location) air-bubble after aug 31st. Couldn't get to [book](book) hotel quarentine as you guys started this very late, hotels are [booked](book) till 31st, please give the req info to [book](book) hotels in sept.
+- @IndiGo6E please tell the [status](status) of [flight](flight) no 6E6267 which is scheduled tomorrow.If it is depart earlier will you intimate the exact time?
+- @IndiGo6E @innovativeraj Please update [status](status) of today's [flight](flight) to [Hyd](location) (7122)
+- @IndiGo6E please update [status](status) of departure of [flight](flight) 7122 from [Bhopal](location). I had my [booking](book) for yesterday and [flight](flight) got cancelled. Have to fly to [Hyderabad](location). Thanks
+- @IndiGo6E please update the status of the [flight](flight) to [Saudi Arabia](location). Got news that Indians are not allowed to enter. I have [booked](book) my ticket for 3 Oct flight from [Trivandrum](location).
+- @IndiGo6E hi I [booked](book) a [flight](flight) on Oct 1st from [bangalore](location) to [Kuala Lumpur](location). Can I know the details of the [flight](flight) [status](status)? Need to know for sure to get medical report before travel. PNR is [VK778J](PNR)
+- @IndiGo6E Dear sir,  next month  [DUBAI](location) TO [TRICHY](location), [DUBAI](location) TO [MADURAI](location) [flight](flight) scheduled operate confirmed [status](status) plz
+
+## lookup:nopnr
+   data/notpnr.txt
+   
+## lookup:prohibited
+   data/Product/prohibited.txt
+   
+## lookup:cabin_prohibited
+   data/Product/cabin_prohibited.txt

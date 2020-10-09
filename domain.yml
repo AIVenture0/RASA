@@ -1,0 +1,64 @@
+session_config:
+  session_expiration_time: 180
+  carry_over_slots_to_new_session: false
+intents:
+- refund_status
+- input_pnr
+- thank_you
+- surname
+- baggage
+- seat
+- flight_status
+entities:
+- PNR
+- refund
+- shell
+- surname
+- baggage
+- weight
+- product
+- cabin_prohibited
+- prohibited
+- seat
+- select
+- alcohol
+- thanks
+- book
+- status
+- flight
+- location
+- cancel
+- nopnr
+- booking
+slots:
+  PNR:
+    type: text
+  surname:
+    type: text
+responses:
+  utter_ask_pnr:
+  - text: Please send your PNR via DM
+  utter_noreply:
+  - text: Out of scope
+  utter_done:
+  - text: Welcome!
+  utter_surname:
+  - text: Can I please know your Surname?
+  utter_baggage_allowance:
+  - text: you can get the details on baggage allowance on https://www.goindigo.in/travel-information/en/baggage-allowance.html
+      website
+  utter_alcohol:
+  - text: You may visit https://t.co/TZrlsBZQg8 to check our liquor carriage policy.
+  utter_product_allowance:
+  - text: Kindly cross check the details of products allowed here _______
+  utter_seat:
+  - text: Our free seats are limited and get occupied very quickly. You can choose
+      auto-assign for free of cost seat or you can check-in at our airport counter
+      where seats are assigned as per the availability. Please visit https://t.co/2dx6eHZYZI
+      for more information.
+  utter_flight_status:
+  - text: 'You may check the status here: https://t.co/s0SduNmrJn Please keep an eye
+      on our social media pages and website for the latest travel updates.'
+actions:
+- action_refund_status
+- action_baggage
